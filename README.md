@@ -1,2 +1,1 @@
-# Thayna
-![](![image](https://github.com/Gaskinhaa/Thayna/assets/149490792/938efd4b-88ab-4c62-b6b0-3f5bc876981c))
+![](![image](https://github.com/Gaskinhaa/Thayna/assets/149490792/586e4714-e173-47eb-aabc-9ad93423e778)
