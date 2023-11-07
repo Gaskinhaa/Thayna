@@ -1,5 +1,2 @@
-Olá me chamo Thayná, e sou estudante do Alura.
-Gostei muito dos cursos do Alura, já estou quase 1 ano no curso.
-Gosto de animais, viajar, assistir/maratona séries, e muitas outras coisas,esse é o básico.
-![](![image](https://github.com/Gaskinhaa/Thayna/assets/149490792/586e4714-e173-47eb-aabc-9ad93423e778)
-https://cursos.alura.com.br/dashboard
+Ola, meu nome é Thayná e eu sou estudante do curso alura.
+https://media.tenor.com/jWcZxjoan_IAAAAC/phone-line-sleep.gif
